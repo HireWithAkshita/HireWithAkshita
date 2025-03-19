@@ -3,7 +3,7 @@
 ## 🌟 Senior Talent Acquisition & HR Specialist | Global Recruitment Expert 🌎  
 
 🔹 **Passionate about connecting top talent with the right opportunities!**  
-🔹 **4+ years of experience in technical & non-technical recruitment**  
+🔹 **4 years of experience in technical & non-technical recruitment**  
 🔹 **Specialized in IT, Construction, Engineering, Finance, E-commerce & Automotive**  
 
 ---
